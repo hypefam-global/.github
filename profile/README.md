@@ -18,4 +18,4 @@ Here are some of the exciting projects we are currently working on:
 Join the REALEST HYPEFAM by joining the [James Hype Discord Server](https://discord.gg/jameshype) by using invite code `jameshype`. If you'd like to get in touch, you can do so there. 
 
 Who does this? :fire:,
-- Hypefam Development Crew
+- HYPEFAM.global Team 
